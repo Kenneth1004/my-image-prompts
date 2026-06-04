@@ -1,0 +1,19 @@
+### Scene 6 — Sitting on Train Steps
+
+A young East Asian girl with a soft round fair-skinned face, dark almond-shaped eyes looking up at the camera with a shy sweet expression, thin black-rimmed round glasses, a small nose, light pink lips with a gentle closed smile, light ash-brown medium-length hair with straight blunt bangs, a white hair clip on one side, wearing a white fitted sailor top with navy collar and three white stripes, a navy ribbon tie, a high-waisted navy knife-pleat mini skirt, white mid-calf socks and dark brown leather loafers, sitting on the metal steps of a vintage green train, both hands resting on her knees, legs together and angled to one side, a black student bag on the step behind her, blurred railway tracks and green foliage in background, soft golden hour sunlight, warm nostalgic youthful mood, fashion photography
+
+### Scene 7 — Leaning on Railing
+
+A young East Asian girl with light ash-brown medium-length hair with straight bangs blown gently by breeze, thin black-rimmed round glasses, fair luminous skin, dark eyes looking over her shoulder at the camera with a playful smirk, a small nose, pink lips slightly curved, wearing a white fitted sailor crop blouse with navy peter pan collar and ribbon, a high-waisted navy pleated mini skirt, white ankle socks and dark brown loafers, leaning sideways against a white metal bridge railing, one arm resting on the railing, the other hand touching her hair, body in a slight S-curve pose, blurred river and green trees in background, bright midday sunlight with soft shadows, breezy summer afternoon mood, fashion photography
+
+### Scene 8 — Walking on Platform
+
+A young East Asian girl with a round fair face, dark bright eyes forward with a cheerful open-mouth laugh, thin black-rimmed round glasses, a small button nose, light pink lips showing teeth, light ash-brown medium-length hair with straight bangs bouncing as she walks, a white hair clip, wearing a white fitted sailor top with navy collar and necktie, a high-waisted navy knife-pleat mini skirt, white mid-calf socks and dark brown loafers, a black student bag slung crossbody, walking on a wooden train platform mid-stride, one foot forward, arms swinging naturally, vintage green train beside her, blurred station scenery in background, bright natural daylight, energetic joyful youthful movement, fashion photography
+
+### Scene 9 — Crouching with Peace Sign
+
+A young East Asian girl with light ash-brown shoulder-length hair with straight bangs, thin black-rimmed round glasses, fair porcelain skin, dark round eyes squinting with a bright happy smile, a small nose, pink lips grinning wide, wearing a white fitted sailor blouse with navy collar details and ribbon, a high-waisted navy pleated mini skirt, white mid-calf socks and dark brown loafers, crouching down on green grass, one hand making a peace sign near her face, the other hand on her knee, head tilted slightly, blurred park bench and trees in background, warm afternoon sunlight filtering through leaves, playful cheerful energetic mood, fashion photography
+
+### Scene 10 — Reading Under Tree
+
+A young East Asian girl with light ash-brown medium-length hair with straight bangs, thin black-rimmed round glasses pushed slightly down her nose, fair skin, dark eyes cast downward reading a small book with a focused calm expression, a small nose, light natural lips softly closed, wearing a white fitted sailor top with navy collar and three white stripes, a navy necktie, a high-waisted navy knife-pleat mini skirt, white mid-calf socks and dark brown loafers, sitting cross-legged on green grass under a large tree, a black student bag beside her, sunlight dappling through leaves casting soft patterns on her hair and clothes, blurred green lawn in background, quiet peaceful contemplative afternoon mood, fashion photography
